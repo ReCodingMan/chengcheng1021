@@ -1,5 +1,4 @@
-### Hi jack假🐶 👋
-### Hi day8 👋
+### Hi EveryOne 👋
 
 <!--
 **chengcheng1021/chengcheng1021** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
